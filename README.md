@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Outcalled
+- 👀 I’m interested in entrepreneurship and making money online.
+- 🌱 I’m currently learning different basic coding languages.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me: admin@outgradedproxy.com | Outcalled#4646 (Discord) | 0utcalled (Twitter)
